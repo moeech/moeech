@@ -6,8 +6,6 @@ ____
 >
 >death note
 >
->yostuba&!
->
 >hazbin hotel
 <!---
 moeech/moeech is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
