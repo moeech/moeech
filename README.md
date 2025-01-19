@@ -1,5 +1,7 @@
 >moe °☆ 18 , she/her
 ____
+>squid games
+>
 >nichijou
 >
 >lucky star
