@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://img.shields.io/badge/( ദ്ദി ˙ᗜ˙ )_hi_yes_i_love_vaggi_x_alastor_-F0B6D5?style=for-the-badge&logoColor=white" />
+  <img src="https://img.shields.io/badge/( ദ്ദി ˙ᗜ˙ )_hi_yes_i_love_alastor_x_vaggi_-F0B6D5?style=for-the-badge&logoColor=white" />
 </p>
 <p align="center">
 <p align="center">
