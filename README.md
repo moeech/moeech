@@ -3,11 +3,11 @@
 </p>
 <p align="center">
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/32098bca-ba15-4731-b00e-cb3547ecb593" width="200" align="middle" />
+  <img src="https://github.com/user-attachments/assets/32098bca-ba15-4731-b00e-cb3547ecb593" width="300" align="middle" />
   &nbsp;&nbsp;&nbsp;
   <font size="100" color="#F0B6D5">٩(^ᗜ^ )و´-</font> 
   &nbsp;&nbsp;&nbsp;
-  <img src="https://github.com/user-attachments/assets/444a99b4-a2b5-434a-992b-120a1eea34c3" width="200" align="middle" />
+  <img src="https://github.com/user-attachments/assets/444a99b4-a2b5-434a-992b-120a1eea34c3" width="300" align="middle" />
 </p>
 <p align="center">
   <font color="#F0B6D5">︶⊹︶︶୨୧︶︶⊹︶⚬──────────✧──────────⚬︶⊹︶︶୨୧︶︶⊹︶ </font>
