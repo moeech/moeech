@@ -1,5 +1,6 @@
+<img width="2048" height="221" alt="image" src="https://github.com/user-attachments/assets/27386500-6d7a-4e54-9f3f-e8d70a9aaa83" />
 <p align="center">
-  <img src="https://img.shields.io/badge/( ദ്ദി ˙ᗜ˙ )_hi_yes_i_love_alastor_x_vaggi_-F0B6D5?style=for-the-badge&logoColor=white" />
+  <img src="https://img.shields.io/badge/(  ˙ᗜ˙ )_hi_yes_i_love_alastor_x_vaggi_-F0B6D5?style=for-the-badge&logoColor=white" />
 </p>
 <p align="center">
 <p align="center">
