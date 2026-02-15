@@ -3,6 +3,6 @@
   <img src="https://img.shields.io/badge/I_LOVE_ALASTOR_!_!_!_-F0B6D5?style=for-the-badge&logoColor=white" width="200" />
 </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/db4cadc5-c279-4b99-982f-9b4d321b64f8" alt="HBJ6IqcXsAA7pMv2" width="550" />
+  <img src="https://github.com/user-attachments/assets/db4cadc5-c279-4b99-982f-9b4d321b64f8" alt="HBJ6IqcXsAA7pMv2" width="600" />
 </p>
 
