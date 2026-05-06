@@ -3,6 +3,6 @@
   <a href="https://github.com/yummyvalentine">alt</a>
 </p>
 <p align="center">
-<img width="1080" height="902" alt="GV_ZmlyaoAEC-9h" src="https://github.com/user-attachments/assets/f112d455-bd2a-4200-9ce5-430211deafee" />
+<img width="579" height="713" alt="GxnGNoBaQAAijpfxcv" src="https://github.com/user-attachments/assets/eb6d6b6c-f9be-4091-a65b-978d4a82d241" />
 </p>
 
